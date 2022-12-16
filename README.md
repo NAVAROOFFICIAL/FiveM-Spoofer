@@ -24,7 +24,7 @@
     </a>
 </p> 
  
-### 💬 ・HELP & SUPPORT | [Discord](https://discord.gg/MBTkVcJefp) 
+### 💬 ・HELP & SUPPORT | [Discord](https://discord.gg/Navaro) 
 
 
  ### 🛒〢 `PRIVATE CHEAT`
